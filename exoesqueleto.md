@@ -1,0 +1,1 @@
+Em zoologia, chama-se exoesqueleto à cutícula resistente, mas flexível, que cobre o corpo de muitos animais e protistas, fornecendo proteção para os órgãos internos, suporte para os músculos e evita também a perda de água. As asas e outros apêndices dos artrópodes são formadas por expansões do exoesqueleto.

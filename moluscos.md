@@ -1,0 +1,1 @@
+Os moluscos são animais de corpo mole, geralmente envoltos por uma concha. A concha é presente em ostras, mariscos, caracol e caramujo. Em alguns, como a lula, a concha é interna e em outros, é ausente, como no polvo. As conchas são importantes para proteger o corpo mole dos moluscos e evitar a perda de água.

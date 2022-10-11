@@ -1,0 +1,1 @@
+O termo camarão é a designação comum a diversos artrópodes da ordem dos decápodes, podendo ser marinhos ou de água doce. Tais artrópodes possuem o abdome longo, corpo lateralmente comprimido, primeiros três pares de pernas com quelas e rosto geralmente desenvolvido.

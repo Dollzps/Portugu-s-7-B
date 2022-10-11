@@ -1,0 +1,1 @@
+As borboletas, panapanás ou panapanãs, são insetos da ordem Lepidoptera classificados nas super famílias Hesperioidea e Papilionoidea, que constituem o grupo informal "Rhopalocera". Como outros insectos de holometabolismo, o seu ciclo de vida consiste em quatro fases: ovo, larva, pupa e imago.

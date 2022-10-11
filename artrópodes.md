@@ -1,0 +1,1 @@
+Artrópodes são um filo de animais invertebrados que possuem exoesqueleto rígido e vários pares de apêndices articulados, cujo número varia de acordo com a classe. Compõem o maior filo de animais existentes, representados por animais como os gafanhotos, as aranhas, os caranguejos, as centopeias e os piolhos-de-cobra.

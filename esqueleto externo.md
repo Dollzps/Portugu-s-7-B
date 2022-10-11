@@ -1,0 +1,1 @@
+O termo exoesqueleto significa esqueleto externo. O exoesqueleto funciona como uma proteção contra atrito, patógenos, predadores e variações do meio ambiente. Além disso, dá suporte estrutural e forma ao corpo do animal.

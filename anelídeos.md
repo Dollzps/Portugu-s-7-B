@@ -1,0 +1,1 @@
+Minhocas, sanguessugas e outros animais invertebrados de corpo mole, cilíndrico e dividido em anéis (daí a origem de seu nome) são classificados como anelídeos, pertencentes ao filo Annelida. Existem mais de 15 mil espécies que fazem parte desse filo.
