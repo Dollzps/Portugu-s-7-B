@@ -1,0 +1,1 @@
+https://www.uol.com.br/ecoa/ultimas-noticias/2021/01/29/devemos-editar-os-termos-racistas-nas-obras-de-monteiro-lobato.htm
